@@ -11,6 +11,6 @@ I need a landing page to which Karen's Power Tools Newsletter subscribers will b
 
 ### 2022-11-22 14:52 JMW: Reformatted this
 
-### 2022-11-22 14:55 JMW: Sending a pattern
+### 2022-11-22 14:55 JMW: Seeing a pattern
 
 
