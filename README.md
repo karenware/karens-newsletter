@@ -21,4 +21,7 @@ Also, I uploaded a video to YouTube:
 
 [Debating on GitHub soon: Karen's Power Tools Newsletter](https://www.youtube.com/shorts/ciWHAPbxW5w "A YouTube Short")
 
+### 2022-11-21 15:57 JMW: Panicing need $40.
+I have a single page thing here.  I mean, Joe, you gonna email this to people?  No.   
+
 
